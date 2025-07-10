@@ -22,4 +22,4 @@
 
 现在点击任意入口，立即体验2025年最畅快、最纯净的日本AV免费观影体验！
 
-<span style="display:none;">[Canonical link]  (  ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/dtnnn20250710/riben200000 ）</span> 
